@@ -16,3 +16,5 @@
 участником региональных конференций, а также государственных
 
 форумов и мероприятий, направленные на построение проектов.
+
+![подпись](https://sun4-12.userapi.com/impg/-NAerw0DBot7o9t7Kah6uBIwrlzfcCA-mD148g/nrbzU6EIJ4A.jpg?size=1280x960&quality=96&sign=60905f69a052573320e2de84ea78faec&type=album)
