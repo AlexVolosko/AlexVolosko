@@ -21,9 +21,14 @@
 
 # ЧЕМ Я ЗАНИМАЮСЬ?
 
-В первую очередь, фотограф и видеограф, занимаюсь
+В первую очередь, **фотограф и видеограф**, занимаюсь
 
 профессиональной съемкой, а также обработкой и монтажом видео
 
-![подпись](https://sun4-17.userapi.com/impg/-A8HsJlPp_V7qigsY_pweXBftwcufoB-UzAu3g/goJrhc4cIuk.jpg?size=960x1280&quality=95&sign=d5b2a48d83e9e230384332c2d3db6ee1&type=album)
-![подпись](https://sun9-85.userapi.com/impg/tBiIZkr9-RzJ8Gyyl3M1cXbIq8O18jNG2p1Y9A/_Q-fc6mKpUI.jpg?size=960x1280&quality=95&sign=5c895937c20fcb3800337c5e359c7949&type=album)
+![подпись](https://sun9-85.userapi.com/impg/tBiIZkr9-RzJ8Gyyl3M1cXbIq8O18jNG2p1Y9A/_Q-fc6mKpUI.jpg?size=1620x2160&quality=95&sign=5c895937c20fcb3800337c5e359c7949&type=album)
+
+Также, имею опыт в деятельности **ведущего и актера** дома культуры **Победа**
+
+Обладаю мастерством импровизации, и кроме этого развиваюсь в направлении танцев
+
+![подпись](https://sun9-86.userapi.com/impg/UoAt9a0N4bJLZuGpcukXB1M09PvGZ52s8T8KRQ/uV7kl4rKaXA.jpg?size=2000x1333&quality=96&sign=724e6b749490c2a22acbbd3eedb7b79b&type=album)
