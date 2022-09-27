@@ -5,7 +5,7 @@
 Я студент **группы 459**, обучаюсь на четвертом курсе.
 
 
-![подпись](https://user-images.githubusercontent.com/114470459/192462413-507889b5-bce8-4553-9a6d-48cff299298c.png)
+![подпись](https://sun4-12.userapi.com/impg/oJy_OS2yZAmA6zklL11RBMlG7wmeIIG3jSE9qA/1CDc2qjEAdU.jpg?size=2560x1696&quality=95&sign=3997fd08edd4f4f63fed1fa433a08200&type=album)
 
 # ОБО МНЕ
 
