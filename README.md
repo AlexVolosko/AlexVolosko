@@ -36,3 +36,9 @@
 Обладаю мастерством импровизации, и кроме этого развиваюсь в направлении танцев
 
 ![подпись](https://sun9-86.userapi.com/impg/UoAt9a0N4bJLZuGpcukXB1M09PvGZ52s8T8KRQ/uV7kl4rKaXA.jpg?size=2000x1333&quality=96&sign=724e6b749490c2a22acbbd3eedb7b79b&type=album)
+
+# МОИ КОНТАКТЫ
+
+## МОЯ ПОЧТА: VOLOSKOA1@GMAIL.COM
+
+## ТЕЛЕФОН: +7 908 952 68 35
