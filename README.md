@@ -41,6 +41,4 @@
 
 ## МОЯ ПОЧТА: VOLOSKOA1@GMAIL.COM
 
-## ТЕЛЕФОН: +7 908 952 68 35 
-
 ## МОЙ ВК: https://vk.com/alexvolosko 
